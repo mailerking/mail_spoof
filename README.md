@@ -4,9 +4,9 @@
 
 ---------------------------------------------------------------------------------------------------------------
 
-● DM me from Telegram (https://t.me/minerioso) if you want to buy full version of the bot. 📭
+● DM me from Telegram (https://t.me/minerioso) if you want to buy service. 📭
 
-● Prices are negotiable. 👍
+● Prices are negotiable . 👍
 
 ---------------------------------------------------------------------------------------------------------------
 
