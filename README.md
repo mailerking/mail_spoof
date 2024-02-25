@@ -6,7 +6,7 @@
 
 ● DM me from Telegram (https://t.me/minerioso) if you want to buy service. 📭
 
-● Prices are negotiable . 👍
+● Prices are negotiable check our channel (https://t.me/mailspoofing). 👍
 
 ---------------------------------------------------------------------------------------------------------------
 
